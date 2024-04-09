@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **sayantan898paul@gmail.com**
 
-- 📄 Know about my experiences [https://sayantanresume.tiiny.site](https://sayantanresume.tiiny.site)
+- 📄 Here's my Resume [https://sayantanresume.tiiny.site](https://sayantanresume.tiiny.site)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
